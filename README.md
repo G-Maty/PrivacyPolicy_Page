@@ -1,0 +1,2 @@
+# PrivacyPolicy_Page
+プライバシーポリシー
